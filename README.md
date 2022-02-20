@@ -1,7 +1,7 @@
 # Introduction:
 I'm Jade (thisJade)
 ```ini
-she/her they/them it/its
+Pronouns: she/her they/them it/its
 ```
 I'm a Train nerd and System Admin.
 
