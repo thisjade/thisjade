@@ -1,6 +1,3 @@
-# Introduction:
-I'm jade 🏳️‍⚧️🏳️‍🌈
-```ini
-Pronouns: she/her
-```
+jade 🏳️‍⚧️🏳️‍🌈
+
 19 y.o. she/her 🏳️‍⚧️🏳️‍🌈 System Administrator
