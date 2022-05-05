@@ -1,6 +1,6 @@
 # Introduction:
-I'm Jade (thisJade).
+I'm jade 🏳️‍⚧️🏳️‍🌈
 ```ini
-Pronouns: she/her they/them it/its
+Pronouns: she/her
 ```
-
+19 y.o. she/her 🏳️‍⚧️🏳️‍🌈 System Administrator
